@@ -6,9 +6,9 @@ FOr the CLUNS!
 
 Praise ctuluh
 
-## HUjah
+## HUjah 
 
-Hujah ?
+Hujah ? Hujah!
 
 ## Lambs to the salaughter
 
