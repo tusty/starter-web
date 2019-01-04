@@ -8,6 +8,10 @@ Praise ctuluh
 
 ## HUjah
 
+Hujah ?
+
 ## Lambs to the salaughter
+
+Yeah, kinda.
 
 ## bep bep bep
