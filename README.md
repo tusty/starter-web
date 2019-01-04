@@ -2,7 +2,7 @@
 
 FOr the CLUNS!
 
-## Purpose
+## Purposeless
 
 Praise ctuluh
 
