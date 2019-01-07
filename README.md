@@ -6,7 +6,7 @@ FOr the CLUNS!
 
 Praise ctuluh
 
-## HUjah 
+## Cant C the C.
 
 Hujah ? Hujah!
 
